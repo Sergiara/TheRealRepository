@@ -1,9 +1,6 @@
 # TheRealRepository
 
-Fuck this shit 
+Creating this file is the best thing i've done in all my life
 
-Fuck this FUCKING shit
-
-fuck fuck fuck fuck fuck fuck fuck fuck
-
-fuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuc
+please gimme the best grades in the world please
+================================================
